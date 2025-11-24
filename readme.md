@@ -6,4 +6,6 @@
 
 以上为临时方案
 
-包含以上信息发邮件 wkl@loping151.com 重新申请token
+包含以上信息发邮件 wkl@loping151.com 重新申请token，不要加我好友。
+
+![6fdad45190df7f0b10a46ddea070b99c](https://github.com/user-attachments/assets/36b15e19-57b6-49aa-86bf-181b2b274387)
